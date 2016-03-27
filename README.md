@@ -15,8 +15,4 @@ c) Provide   More prosperity  and  cooperation  and  unity.
 d)  JIT   also   has   Advanced   technology  to  provide
 prosperity  for  business.
 
-References:
 
-Kindly   see   our  God's  company   for
-
-more  details   at   website  http://wilmixinformationsystem.webs.com/.

@@ -1,5 +1,5 @@
 # Home
-JIT(Jehovah Information System-Unit1) or  Jehovah  Information Technology   is  focused   on  most  powerful  Advanced  Business to  overtake  any   demerits  of   WSIT and  Jemin  Information  Technology  from  competitors.
+JIT(Jehovah Information System-Unit1) or  Jehovah  Information Technology   is  focused   on  most  powerful  Advanced  Business to  overtake  any   demerits  of   WRIT and  Jemin  Information  Technology  from  competitors.
 JIT  is  a  seperate    field  founded   by  wilmix  jemin j  at   MAR  2015.
 JIT  is  the    most  powerful  Advanced Business  which  contains  Jehovah  Business  sword(JBS).
 JBS  consists  of  REMO,ROMOS ,  and Mice.  here   REMO  is   the   control  unit.

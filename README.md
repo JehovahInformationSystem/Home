@@ -42,3 +42,6 @@ Jehovah  Advanced  Business(JAB)     can  overtake   competitors etc.
 SO  Jehovah Information Technology      has  a  Very high  Advanced  Business  Known   a   JEHOVAH
 
 Business  sword. 
+
+
+NOTE: It  is under   construction...

@@ -16,3 +16,29 @@ d)  JIT   also   has   Advanced   technology  to  provide
 prosperity  for  business.
 
 
+
+ABOUT JIT
+=========
+
+JIT   is  ranked   as   
+
+Z'''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''' and  so on  pow (infinitive)  in  the  world.
+
+Jehovah  Information  Technology (JIT)    is   used    to   recover  Demerits   of  WRIT field,   SIT field, etc.
+
+
+
+JIT    contains  Most  Powerful   Advanced  Business.
+
+JIT   Advanced  Business   is  a    new   concept    invented   by    wilmix  jemin  j   at    year   2010.
+
+Later   he  wrote   many   Advanced   Business     one   of  them  is    JIT Unit -1.
+
+You  can    see   more  about    it   at    Most  Advanced  Business    section. 
+
+Jehovah  Advanced  Business(JAB)     can  overtake   competitors etc.
+
+
+SO  Jehovah Information Technology      has  a  Very high  Advanced  Business  Known   a   JEHOVAH
+
+Business  sword. 
